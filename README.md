@@ -1,1 +1,7 @@
-# tugas-3-rizki-ayu
+![WhatsApp Image 2023-10-08 at 22 02 45](https://github.com/rohaliaputri/tugas-3-rizki-ayu/assets/144677172/b09b6384-d63b-4bc6-8471-01590728f4e8)
+![WhatsApp Image 2023-10-08 at 22 02 44 (1)](https://github.com/rohaliaputri/tugas-3-rizki-ayu/assets/144677172/7ba8324e-baf0-47ca-a4af-d25cd8d626f0)
+![WhatsApp Image 2023-10-08 at 22 02 44](https://github.com/rohaliaputri/tugas-3-rizki-ayu/assets/144677172/7005700c-f2d0-4a5f-8303-ca14ed3ddec3)
+![WhatsApp Image 2023-10-08 at 22 02 43](https://github.com/rohaliaputri/tugas-3-rizki-ayu/assets/144677172/50f620cf-211c-41fc-af0c-fc790ab7b989)
+![paficon](https://github.com/rohaliaputri/tugas-3-rizki-ayu/assets/144677172/7847fdda-e3ac-4f05-a3e1-cc7e08653941)
+![WhatsApp Image 2023-10-08 at 22 06 45](https://github.com/rohaliaputri/tugas-3-rizki-ayu/assets/144677172/fbaaa129-4629-444a-8965-fb60338b2931)
+![WhatsApp Image 2023-10-08 at 22 02 45 (1)](https://github.com/rohaliaputri/tugas-3-rizki-ayu/assets/144677172/d8200256-4548-4c12-8a67-209ed1b1ce37)
